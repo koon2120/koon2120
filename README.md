@@ -1,1 +1,1 @@
-![Koon2120 Logo](https://r2.koon2120.work/images/koon2120-logo-2025.svg)
+![koon2120-logo-2025-color](https://github.com/user-attachments/assets/9e8265bf-b55a-4ec0-8e80-8edb24c9c2eb)
